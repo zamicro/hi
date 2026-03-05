@@ -2,4 +2,4 @@ Hi my name is Dotonaro, a.k.a Zora/baby griefer/Rien/Yusai/Wemmbu/Wemmy/Zam/Xiao
 
 (i swear if ajax read this. Ok)
 
-it doesnt even work i hate doing this help me
+how do i embed an image to gist ;-;
