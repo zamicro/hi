@@ -2,4 +2,4 @@ Hi my name is Dotonaro, a.k.a Zora/baby griefer/Rien/Yusai/Wemmbu/Wemmy/Zam/Xiao
 
 (i swear if ajax read this. Ok)
 
-![22](https://github.com/user-attachments/assets/6e37a607-3521-4c68-837c-a99d59408507)
+it doesnt even work i hate doing this help me
