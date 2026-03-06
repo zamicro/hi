@@ -1,2 +1,1 @@
-ya idk![harmony](https://github.com/user-attachments/assets/c9fba52a-7c09-4757-8ea0-bf88f6e63f78)
-![harmony](https://raw.githubusercontent.com/zamicro/hi/refs/heads/main/harmony.png)
+<img width="600" height="800" alt="saparata" src="https://github.com/user-attachments/assets/9fb0da29-36e5-4d77-b44d-6e9ea5a2ece8" />
