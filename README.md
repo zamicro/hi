@@ -7,3 +7,5 @@ i have tons of nicknames
 march 30 2026, 22:56 note
 > [!note]
 > it didnt work
+
+no sorry the nicknames are only inside jokes
